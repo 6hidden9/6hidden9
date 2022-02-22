@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @6hidden9
-- 👀 I just like duks
+- 👀 I just like ducks
 - i just can print "hello world" but if you need eny help can call me :)
 - 💞️ I’m looking to collaborate on eny work you hawe 
 - 📫 How to reach me ? idk who now ? sotty but idk again 
